@@ -1,3 +1,3 @@
 Designed by freelancerguys
 
-http://freelancerguys.com/
+https://freelancerguys.com/
